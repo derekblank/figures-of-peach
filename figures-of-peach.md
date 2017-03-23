@@ -110,7 +110,14 @@
 >
 > _Dates back to when anti-Irish sentiments ran high_
 
+###  For all intensive purposes
+> **Meaning: in every practical sense**
+>
+
 ###  Tape your pick.
+> **Meaning: choose something or someone**
+>
+>_Dates back to when coal miners marked their personal property with all they had at hand -- typically, this consisted of white marker tape so it could be seen in the dark _
 
 ###  I’m just playing double's advocate.
 
