@@ -116,6 +116,9 @@
 > _Dates back to when motion-photographer [Eadweard Muybridge](https://en.wikipedia.org/wiki/Sallie_Gardner_at_a_Gallop) was self-conscious about the low clarity and resolution of his early work_
 
 ###  Tape your pick.
+> **Meaning: choose something or someone**
+>
+> _Dates back to when coal miners marked their personal property with all they had at hand, typically this consisted of white marker tape so it could be seen in the dark_
 
 ###  I’m just playing double's advocate.
 
