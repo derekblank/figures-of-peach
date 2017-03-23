@@ -117,7 +117,7 @@
 ###  Tape your pick.
 > **Meaning: choose something or someone**
 >
->_Dates back to when cole miners marked their personal property with all they had at hand, typically this consisted of white marker tape so it could be seen in the dark _
+>_Dates back to when coal miners marked their personal property with all they had at hand -- typically, this consisted of white marker tape so it could be seen in the dark _
 
 ###  I’m just playing double's advocate.
 
