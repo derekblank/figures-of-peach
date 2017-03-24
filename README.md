@@ -1,5 +1,5 @@
 # Figures of Peach
-A brief history of [useful phrases](youtu.be/dQw4w9WgXcQ).
+A brief history of [useful phrases](https://www.youtube.com/watch?v=dQw4w9WgXcQ).
 
 ## Contributing
 Contributions welcome:
