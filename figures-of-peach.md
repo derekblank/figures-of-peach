@@ -110,6 +110,11 @@
 >
 > _Dates back to when anti-Irish sentiments ran high_
 
+###  Never look a .gif'd horse in the mouth
+> **Meaning: don't look too closely at something**
+>
+> _Dates back to when motion-photographer [Eadweard Muybridge](https://en.wikipedia.org/wiki/Sallie_Gardner_at_a_Gallop) was self-conscious about the low clarity and resolution of his early work_
+
 ###  Tape your pick.
 
 ###  I’m just playing double's advocate.
