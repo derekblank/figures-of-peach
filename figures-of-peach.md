@@ -119,6 +119,11 @@
 >
 >_Dates back to when coal miners marked their personal property with all they had at hand -- typically, this consisted of white marker tape so it could be seen in the dark _
 
+### Takes one to no one
+> **Meaning: takes minimal effort**
+>
+>_Dates back to when factory workers could do their job without paying complete attention.  Often factory workers would joke that their job took a fraction of a person to do, always within the range of 0-1 persons_
+
 ###  I’m just playing double's advocate.
 
 ###  You're making a half-harded effort.
