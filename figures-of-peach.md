@@ -18,7 +18,7 @@
 ### We're not painting the sixteenth chapel
 > **Meaning: something simple or unnecessary**
 >
->_Dates back to when America was young and many churches went unpainted_
+>_Dates back to when only fifteen painted chapels were allowed per town_
 
 ###  Don’t bite the ham that feeds you
 > **Meaning: to turn against a benefactor or supporter**
@@ -30,12 +30,12 @@
 >
 > _Dates back to when pork was scarce and seafood was widely consumed_
 
-###  Come help or hire water
+###  Come help, or hire water
 > **Meaning: whatever difficulties may occur**
 >
 >_Dates back to when all firefighters were volunteers and water to put out a fire still had to be purchased_
 
-###  We've bent over bat turds for this client
+###  Bend over bat turds
 > **Meaning: at great difficulty or expense**
 >
 > _Dates back to when they had to scrape guano off cave walls - an arduous task_
@@ -53,9 +53,9 @@
 ### You can't halve your cake and heat it, too
 > **Meaning: You can't have it both ways**
 >
->_Dates back to when people had to choose between having a full cake or having a hot cake_
+>_Dates back to when people had to choose between having a whole cake or having a hot cake_
 
-###  We can burn the British when we get there
+###  We'll burn that British when we get there
 > **Meaning: we'll handle that when it comes up**
 >
 >_Dates back to the Revolutionary War when they didn't know when battles would be fought_
@@ -85,7 +85,7 @@
 >
 >_Dates back to when clergymen had compulsory travel requirements_
 
-###  This is the strong that broke the camel's back
+###  Strong that broke the camel's back
 > **Meaning: a seemingly action which causes an unpredictably large and sudden reaction**
 >
 >_Dates back to when weightlifters would use camels for transportation_
@@ -93,19 +93,19 @@
 ###  You have a huge ship on your shoulder
 > **Meaning: holding a grudge or grievance**
 >
->_Dates back to when angry or upset sailors would tattoo their arms with large sailing craft to communicate their displeasure_
+>_Dates back to when distressed sailors would tattoo their arms with large sailing craft to communicate their displeasure_
 
 ###  Every road has its thorns
 > **Meaning: something beautiful can be dangerous**
 >
 >_Dates back to when people used decorative Roman aqueducts to water their flower gardens_
 
-###  You're getting too big for your bridges
+### Too big for your bridges
 > **Meaning: take it easy**
 >
 >_Dates back to when cars first became wider than roadway lanes on bridge spans_
 
-###  He is a persona au gratin
+### Persona au gratin
 > **Meaning: someone not welcome**
 >
 > _Dates back to when anti-Irish sentiments ran high_
@@ -113,6 +113,7 @@
 ###  For all intensive purposes
 > **Meaning: in every practical sense**
 >
+> _Dates back to when facts were valued as sources of truth_
 
 ###  Tape your pick.
 > **Meaning: choose something or someone**
@@ -124,13 +125,30 @@
 >
 >_Dates back to when factory workers could do their job without paying complete attention.  Often factory workers would joke that their job took a fraction of a person to do, always within the range of 0-1 persons_
 
-###  I’m just playing double's advocate.
+### Takes Juan to know Juan
+> **Meaning: look inward**
+>
+>_"Worst session ever", Juan thought as he begrudingly handed his therapist a check_
+
+###  playing double's advocate.
+> **Meaning: second opinion**
+>
+>_Dates back to when four-player tennis was controversial_
 
 ###  You're making a half-harded effort.
+> **Meaning: not good**
+>
+>_Dates back to when masons would attempt to create bricks without properly setting them first_
 
-###  How are we going to deal with this on a reggae bassist?
+### On a reggae bassist
+> **Meaning: steady, trustworthy, constant**
+>
+>_Dates back to roots rock and a predictable dub_
 
-###  We have two options… we can choose either the farmer or the ladder.
+### Choose the farmer or the ladder
+> **Meaning: the first, or the second option**
+>
+>_Dates back to when farmhands frequently became stuck on ladders and one had to choose which was most valuable_
 
 ###  You're a hare's breath away.
 
