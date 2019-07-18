@@ -53,7 +53,7 @@
 ### You can't halve your cake and heat it, too
 > **Meaning: You can't have it both ways**
 >
->_Dates back to when people had to choose between having a whole cake or having a hot cake_
+>_Dates back to when people had to choose between halving a whole cake or having a hot cake_
 
 ###  We'll burn that British when we get there
 > **Meaning: we'll handle that when it comes up**
