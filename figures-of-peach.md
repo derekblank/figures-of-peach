@@ -1,5 +1,12 @@
 # Figures of Peach
 
+###  Water under the fridge
+> **Meaning: Refer to events that are in the past and consequently no longer to be regarded as important.**
+>
+>_Dates back to when people would drop ice and just kick it under the refrigerator to melt, rather than pick it up._
+>
+>_"Hey, did you drop some ice?" "Yeah. But now it's just water under the fridge."_
+
 ###  There's more than one way to spin a cat
 > **Meaning: an alternate solution is available**
 >
