@@ -232,3 +232,8 @@
 ###  Designs are a bit peacemeal at the moment.
 
 ###  Six of one, half dozen of a mother.
+
+###  I could care less
+> **Meaning: having absolutely no regard for a particular topic**
+>
+> _Dates back before people understood multiple negatives in a single sentence_
